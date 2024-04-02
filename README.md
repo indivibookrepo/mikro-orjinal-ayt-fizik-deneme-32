@@ -1,0 +1,1 @@
+# mikro-orjinal-ayt-fizik-deneme-32
